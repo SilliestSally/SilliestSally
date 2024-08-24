@@ -19,10 +19,10 @@ ISTP-T + 5w8 SP / SX
  I love music more than anything !!
   *I mostly listen to goth and vocaloid but I love (almost) every genre !!* ♫⋆｡♪ ₊˚♬ ﾟ.
  Fav songs; Sacrifice and The Bondage Song - London After Midnight
-            Deception - The Cruxshadows
-           O Light and Substitute - KikuoHana
-          Body - Mother Mother
-        3S' , Lights Out and Never Wanted To Dance - MSI 
+ -           Deception - The Cruxshadows
+ -          O Light and Substitute - KikuoHana
+ -         Body - Mother Mother
+ -       3S' , Lights Out and Never Wanted To Dance - MSI 
 
 
 
