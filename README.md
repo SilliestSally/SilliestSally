@@ -10,7 +10,8 @@ I use emoticons like :3, ^_^, :o and more !! I'm also romantic goth !! (๑ᵔ�
 
  Fine with NSFW jokes, but don't go too far please !! (ᗒᗣᗕ)՞
 
-Fandoms: Phighting, Regretevator, Pressure, MBTI, MLP, Sanrio, BSD, Tokyo Mew Mew, Murder Drones, TADC, Helluva Boss !! ദ്ദി(｡•̀ ,<)~✩‧₊
+Fandoms: Phighting, Regretevator, Pressure, MBTI, MLP, Sanrio, BSD, Tokyo Mew Mew, Murder Drones, TADC, 
+Helluva Boss !! ദ്ദി(｡•̀ ,<)~✩‧₊
 
  Demi-girl lesbian in a happy relationship !! ٩(^ᗜ^ )و
 
