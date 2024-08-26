@@ -1,6 +1,8 @@
 ### Helloo!! My name is Lea/Sally, you can call me any !! ( ˶ˆᗜˆ˵ )
  
  This GitHub is used for PonyTown info and info in general !!
+
+Send me things on strawpage if you want !! (๑˃̵ᴗ˂̵)و
  
 I use emoticons like :3, ^_^, :o and more !! I'm also romantic goth !! (๑ᵔ⤙ᵔ๑)
 
