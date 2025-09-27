@@ -1,21 +1,21 @@
-### Helloo!! My name is Lea/Sally, you can call me any !! ( ˶ˆᗜˆ˵ )
+### Helloo!! My name is Sally, you can call me any !! ( ˶ˆᗜˆ˵ )
  
  This GitHub is used for PonyTown info and info in general !!
 
 Send me things on strawpage if you want !! (๑˃̵ᴗ˂̵)و
  
-I use emoticons like :3, ^_^, :o and more !! I'm also romantic goth !! (๑ᵔ⤙ᵔ๑)
+I use emoticons like :3, ^_^, :o and more !! I'm also goth !! (๑ᵔ⤙ᵔ๑)
 
- Diagnosed high-functioning autism, ADHD, BPD and social anxiety; ***Please IWC !!!*** (ง'̀-'́)ง
+ Diagnosed high-functioning autism and social anxiety; ***Please IWC !!!*** (ง'̀-'́)ง
 
-14 !! ***Adults dni*** ( ˶°ㅁ°) !!
+15 !! ***Adults dni*** ( ˶°ㅁ°) !!
 
  Fine with NSFW jokes, but don't go too far please !! (ᗒᗣᗕ)՞
 
-Fandoms: Phighting, Cookie Run, Regretevator, Pressure, MBTI, Sanrio, BSD, Tokyo Mew Mew, Murder Drones, TADC, 
-H. Boss !! ദ്ദി(｡•̀ ,<)~✩‧₊
+Fandoms: Phighting, Forsaken, Cookie Run, Regretevator, Pressure, MBTI, Sanrio, BSD, Tokyo Mew Mew, Murder Drones, TADC, 
+Mouthwashing... !! ദ്ദി(｡•̀ ,<)~✩‧₊
 
- Demi-girl lesbian in a happy relationship !! ٩(^ᗜ^ )و
+ In a happy relationship !! ٩(^ᗜ^ )و
 
 ISTP-T + 5w8 SP / SX
 
